@@ -1,2 +1,2 @@
 # youwhat
-thats how mafia works
+[thats how mafia works](https://mafia.yottagames.com/?gclid=CjwKCAiA99vhBRBnEiwAwpk-uNyQzzZ1H-Rq_0X52_-lEUTYO5Pvwkuw9EAosbm3X2nZP7ghezCxXhoCZmMQAvD_BwE)
